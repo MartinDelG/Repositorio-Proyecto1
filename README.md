@@ -1,0 +1,3 @@
+- [Reporte](https://uniandes-my.sharepoint.com/:w:/g/personal/i_arangom_uniandes_edu_co/EWko3SS9MUxNnlOybvONqgwBlxyg9jGhvTVlNekqduiR5Q?e=v3e7r6)
+- [Trabajo en equipo](https://uniandes-my.sharepoint.com/:w:/g/personal/m_delgordo_uniandes_edu_co/EdfZhyxBHbZNqgaroP-r6mABsmhjmBDhgLFhP3PwUtIajw?e=yY2PLs)
+- [Presentación](https://uniandes-my.sharepoint.com/:w:/g/personal/i_arangom_uniandes_edu_co/EWko3SS9MUxNnlOybvONqgwBlxyg9jGhvTVlNekqduiR5Q?e=v3e7r6)
